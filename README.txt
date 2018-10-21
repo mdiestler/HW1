@@ -1,2 +1,0 @@
-Morgan Diestler
-Minnesota Twins!!
